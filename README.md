@@ -1,4 +1,4 @@
-### 👋 Hi there, I'm Akhil Regonda!
+### 👋 Hi there, I'm Stewie!
 
 ---
 
